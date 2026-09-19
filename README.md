@@ -5,6 +5,7 @@
 - **Members:** Vansh Bhandari, Muskan, Shlok Suraiya
 - **Institute:** IIT Guwahati
 - 🏅 **Top 20 nationally in Round 1**
+- 🏅 **Top 10 nationally in Round 2**
 
 ---
 

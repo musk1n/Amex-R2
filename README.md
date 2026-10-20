@@ -4,8 +4,8 @@
 - **Team:** Thinkers
 - **Members:** Vansh Bhandari, Muskan, Shlok Suraiya
 - **Institute:** IIT Guwahati
+- 🏅 **National Rank 2**
 - 🏅 **Top 20 nationally in Round 1**
-- 🏅 **Top 10 nationally in Round 2**
 
 ---
 
